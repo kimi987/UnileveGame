@@ -9,7 +9,7 @@
 
 ### 游戏参考图
 
-![avatar](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1553229006595&di=162d18e56a7ec27eb8aaf2e310b0db86&imgtype=0&src=http%3A%2F%2Fpic.k73.com%2Fup%2Fsoft%2F2016%2F0714%2F164020_58238823.jpg)
+![avatar](1.jpg)
 
 ### 费用计算
 
@@ -24,7 +24,7 @@
 
 ### 游戏参考图
 
-![avatar](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1553230751901&di=803375830428ac42b66451431679d190&imgtype=0&src=http%3A%2F%2Fimg2.baa.bitautotech.com%2Fimg%2FV2img2.baa.bitautotech.com%2Fusergroup%2F2014%2F1%2F25%2Fb242b0505d0a4b76ae2882472e0044d2_990_0_max_jpg.jpg)
+![avatar](2.jpg)
 
 ### 费用计算
 > 1. 技术：7个工作日 * 2000 
@@ -39,7 +39,7 @@
 
 ### 游戏参考图
 
-![avatar](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1553231154824&di=240806dfc9a52737ce9e36ff03178406&imgtype=0&src=http%3A%2F%2Fi-imgp.fetionpic.com%2Ffphoto%2Fphoto1%2FM00%2F74%2F0B%2FrBUyIVEHWxvCxBWFAAA7t7iHjDM576.jpg)
+![avatar](3.jpg)
 
 ### 费用计算
 
